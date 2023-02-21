@@ -2,4 +2,4 @@
 
 Silahkan menuliskan nama jika tertarik untuk mendaftar
 
-*Abriyan Yusuf
+*Abriyan Yusuf Aksa
